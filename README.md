@@ -1,1 +1,1 @@
-Finnish IT student
+Finnish ICT Engineering student
